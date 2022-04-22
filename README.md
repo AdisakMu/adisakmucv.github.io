@@ -1,1 +1,0 @@
-# adisakmucv.github.io
